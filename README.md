@@ -1,3 +1,1 @@
-# Journey
-
-## [The World of Hopes]()
+# Journey! The World of Hopes!
